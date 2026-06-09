@@ -1,4 +1,4 @@
-
+Experience be a lucky block like never before with be a lucky block Script advanced, the #1 Script. Includes infinite resources and auto-collect for
 
 
 
